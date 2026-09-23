@@ -1,3 +1,5 @@
 ## Como superar el estres de practica 
 
 1. Superar el estrés durante la práctica profesional universitaria requiere un equilibrio entre organización, autocuidado y perspectiva. Una estrategia efectiva es planificar las tareas con antelación y dividir los proyectos en pasos pequeños para evitar sentirse abrumado. También es importante reconocer que los errores forman parte del aprendizaje: en lugar de verlos como fracasos, conviene asumirlos como oportunidades de crecimiento. Mantener hábitos saludables como dormir bien, alimentarse de manera adecuada y realizar actividad física ayuda a regular la mente y el cuerpo. Finalmente, hablar con compañeros, tutores o amigos sobre las experiencias permite liberar tensión y recibir apoyo, recordando que la práctica es un proceso de formación, no una evaluación definitiva de tu capacidad profesional.
+
+A veces la vida se tiene que tomar con tranquilidad porque nos podemos morir si hacemos algo indebido 
